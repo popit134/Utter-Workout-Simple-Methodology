@@ -1,6 +1,6 @@
 # Utter-Workout
 
-*I can't edit the title, the title is suppose to be "Utter Workout Simple Idea, it is not a methodology. There are no workout example and are meant to be ambigious to fit conditions.*
+*I can't edit the title, the title is suppose to be "Utter Workout Simple Idea, it is not a methodology. There are no workout examples and are meant to be ambigious to fit conditions.*
 
 It states that flow of physical activity—specifically body building—**thrives most by rest and fuel than mere pain as a medium for repair and spark.**
 
