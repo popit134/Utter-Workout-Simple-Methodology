@@ -8,4 +8,4 @@ An utter—which we avoid— happens when a body exhausts from the opportunity f
 
 An opportunity—which we commit—happens when a body attempts an overloading opportunity with **adequate resource; telling your body what to do.**
 
-*Fundamentally, growth drive supposedly occurs via tearing sufficient fibers adequately—without being too much or too little—enough to spark growth.*
+*Fundamentally, growth drive supposedly occurs via tearing sufficient fibers adequately—without exhausting your body or lacking tension—enough to spark growth.*
