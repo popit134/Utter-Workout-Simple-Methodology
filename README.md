@@ -1,5 +1,8 @@
 # Utter-Workout
-A flow of physical activity—specifically body building—works best by rest and fuel than mere pain.
+
+*I can't edit the title, the title is suppose to be "Utter Workout Simple Idea, it is not a methodology.*
+
+It states that flow of physical activity—specifically body building—**thrives most by rest and fuel than mere pain.**
 
 An utter happens when a body exhausts from the opportunity for body growth.
 
