@@ -4,6 +4,6 @@
 
 It states that flow of physical activity—specifically body building—**thrives most by rest and fuel than mere pain.**
 
-An utter happens when a body exhausts from the opportunity for body growth.
+An utter happens when a body exhausts from the opportunity for body growth **lacking resources and gaining detrimental cortisol.**
 
-An opportunity happens when a body attempts an overloading opportunity with adequate resource.
+An opportunity happens when a body attempts an overloading opportunity with **adequate resource.**
